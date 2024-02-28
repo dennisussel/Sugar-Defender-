@@ -1,2 +1,0 @@
-# Sugar-Defender-
-Sugar Defender 
